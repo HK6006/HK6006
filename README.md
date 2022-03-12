@@ -5,7 +5,7 @@
 
 - 💬 Insta Profile ~ **itzhk07**
 
-- 📫 How to reach me **vilen.hk@gmail.com**
+- 📫 Reach me at : **vilen.hk@gmail.com**
 
 - ⚡ True fact **beginning is ending and ending is beginning.**
 
