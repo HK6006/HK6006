@@ -1,7 +1,7 @@
 <h1 align="center">Hey👋, This is Harshil Kakadiya (HK)</h1>
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=hk6006&label=Profile%20views&color=0e75b6&style=flat" alt="hk6006" /> </p>
 
-- 🌱 I’m currently learning **Data analytics , Management of Businesses.**
+- 🌱 I’m currently learning **Finance and Management of Businesses.**
 
 - 💬 Insta Profile ~ **itzhk07**
 
